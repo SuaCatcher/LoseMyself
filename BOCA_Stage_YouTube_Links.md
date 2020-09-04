@@ -1,5 +1,7 @@
 ## BOCA Stage YouTube Links
 
+1. Sep 04, 2020
+    - [BOCA @SimplyKpop](https://youtu.be/HXgnhKt_3d8)
 1. Sep 03, 2020
     - [BOCA @MCOUNTDOWN](https://youtu.be/FTDsc8fnsMU)
 1. Sep 02, 2020
