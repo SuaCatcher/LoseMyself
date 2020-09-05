@@ -18,8 +18,9 @@
 1. Aug 29, 2020
     - [BOCA @MusicCore](https://youtu.be/oHmYxzF2tAY)
 1. Aug 28, 2020
-    - [BOCA @SimplyKpop](https://youtu.be/HiE-O78yOEY)
     - [BOCA @MusicBank](https://youtu.be/4GWE0ZChUJI)
+1. Aug 27, 2020
+    - [BOCA @SimplyKpop](https://youtu.be/HiE-O78yOEY)
 1. Aug 26, 2020
     - [BOCA @ShowChampion](https://youtu.be/B2lzNrSThwo)
 1. Aug 23, 2020
