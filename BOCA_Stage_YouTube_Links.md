@@ -28,8 +28,9 @@
     - [BOCA @MusicCore](https://youtu.be/BXEHCpNLFRU)
 1. Aug 21, 2020
     - [BOCA @MusicBank](https://youtu.be/ylf1mRoY2Zc)
-    - [Dear + BOCA @SimplyKpop](https://youtu.be/niivrJ6m8Is)
+    - [Dear @MusicBank](https://youtu.be/Jn8enTwPXJo)
 1. Aug 20, 2020
+    - [Dear + BOCA @SimplyKpop](https://youtu.be/niivrJ6m8Is)
     - [BOCA Comeback Stage @MCOUNTDOWN](https://youtu.be/8WKgZFdI3ic)
 1. Aug 18, 2020
     - [BOCA @ComebackShowcase (FullCam)](https://youtu.be/WhskMAEaZFc)
