@@ -3,7 +3,7 @@
 1. Sep 06, 2020
     - @inkigayo
 1. Sep 05, 2020
-    - @MusicCore
+    - [BOCA @MusicCore](https://youtu.be/zdWr1mzAuaE)
 1. Sep 04, 2020
     - [BOCA @SimplyKpop](https://youtu.be/HXgnhKt_3d8)
 1. Sep 03, 2020
