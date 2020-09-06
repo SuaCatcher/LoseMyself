@@ -2,7 +2,7 @@
 
 | Date         | Link                                                    |                            Image                             |
 | ------------ | :------------------------------------------------------ | :----------------------------------------------------------: |
-| Sep 06, 2020 | @inkigayo                                               |                                                              |
+| Sep 06, 2020 | [@inkigayo](https://youtu.be/DnsLPU2HxEE)               | <img src="img/20200906_inkigayo.png" alt="20200906_inkigayo" style="zoom:20%;" /> |
 | Sep 05, 2020 | [@MusicCore](https://youtu.be/zdWr1mzAuaE)              | <img src="img/20200905_MusicCore.png" alt="20200905_MusicCore" style="zoom: 20%;" /> |
 | Sep 04, 2020 | [@SimplyKpop](https://youtu.be/HXgnhKt_3d8)             | <img src="img/20200904_SimplyKpop.png" alt="20200904_SimplyKpop" style="zoom:20%;" /> |
 | Sep 03, 2020 | [@MCOUNTDOWN](https://youtu.be/FTDsc8fnsMU)             | <img src="img/20200903_MCOUNTDOWN.png" alt="20200903_MCOUNTDOWN" style="zoom:20%;" /> |
